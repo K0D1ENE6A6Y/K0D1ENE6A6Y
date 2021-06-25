@@ -1,0 +1,5 @@
+- 👋 wsg, I’m asia .
+- 👀 I’m interested in ya momma .
+- 🌱 I’m currently learning how to gaf
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me cord : shiesty#1600 , ig :capalot.valentina , snap: baybeecece .
